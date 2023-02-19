@@ -1,6 +1,6 @@
 ## ✨Sejá bem vindo(a) ao meu perfil do GitHub!✨ 
 ### 👋 Olá Devs! me chamo Ana Clara Moronaga.
-- 👶🏼 18 anos. 
+- 👶🏼 19 anos. 
 - 🤓 programadora autodidata e ✨Artista✨ (que chique né?)
 - 💬 sou fluente em japonês, inglês. 
 - tenho experiencia com essas linguagems de programação abaixo.
