@@ -23,6 +23,6 @@ pretendo ter um emprego para ganhar experiencia e ganhar dindins com o que eu am
 ## Contatos/redes sociais
 - <a href="https://www.instagram.com/ana_na_agua/">Instagram. 📷</a>
 - <a href="https://twitter.com/morou_na_agua">Twitter. </a>
-- Discord: Ana Clara#7472
+
 
 ### chama no chat bb. ;)
